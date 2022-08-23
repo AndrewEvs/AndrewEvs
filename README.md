@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AndrewEvs
 - 👀 IPFS: andrewevs.crypto
-ipfs://bafybeic5nls5uhnpzktxvijc5mkyegaihhuoehlgfv3cs66jtatmpjudie/
+- ipfs://bafybeic5nls5uhnpzktxvijc5mkyegaihhuoehlgfv3cs66jtatmpjudie/
 
 Passionate interest and experience in digital assets, NFTs, DeFi applications, and organic community growth in the digital space. Mid-Level Management & C-Level Executive consultative sales and leadership experience specializing in product and channel management of emerging print technologies. Ability to lead in a fast paced, competitive business environment with a history of building year-over-year sustainable growth. 
 
